@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Satty117
+- 👋 Hi, I’m Satwika Chepuri
 - 👀 I’m interested in Artificial Intelligence
 - 📫 How to reach me https://www.linkedin.com/in/satwika-chepuri-19740b1aa/
 - 😄 Pronouns: She/Her
