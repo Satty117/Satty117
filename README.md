@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Satty117
-- 👀 I’m interested in Data analysis
+- 👀 I’m interested in Artificial Intelligence
 - 📫 How to reach me https://www.linkedin.com/in/satwika-chepuri-19740b1aa/
 - 😄 Pronouns: She/Her
 
